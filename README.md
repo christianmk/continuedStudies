@@ -1,2 +1,2 @@
 # continuedStudies
-Focused towards personal growth and projects
+Focused towards personal growth and engaging projects
